@@ -84,7 +84,64 @@ _Vista del Taillón parcialmente cubierto desde el último collado que subí_
 _Vista de la ruta que he estado haciendo, desde arriba del collado_
 
 Subir al collado es relativamente fácil, aunque hay un poco de inclinación y mucha piedra suelta. Aprovecho a descansar arriba un buen rato disfrutando las vistas, comer un poco y revisar el camino y tiempos que he hecho hasta aquí. Calculo que si salgo ahora llegaré al refugio sobre las 14h30, en total unas 7h de travesía, así que estoy bastante tranquilo, y el tiempo se mantiene bastante estable.
-Al bajar del collado cruzo la llanura por el otro lado, para poder ver bien la brecha, y se ve espectacular. Ahí me entra la duda de si intentar subir un poco más por el camino que se ve en medio, que hay nieve pero es bastante seguro, y físicamente voy muy bien, pero mirando el reloj veo un poco arriesgado intentarlo. Si volviera otra vez lo haría seguro, pero ese día quería ir muy a lo seguro y llegar hasta allí ya fue bastante logro.
+Al bajar del collado cruzo la llanura por el otro lado, para poder ver bien la brecha, y se ve espectacular. Ahí me entra la duda de si intentar subir un poco más por el camino que se ve en medio, que hay nieve pero es bastante seguro, y físicamente voy muy bien, pero mirando el reloj veo un poco arriesgado intentarlo. En frío yo creo que hubiera ido sin dudarlo, pero allí se veía todo más grande y lejos.
 
 ![Image](fotos/dia2/brecha1.jpg)
-_La brecha al fondo, y el camino parcialmente nevado que me habría podido acercar hasta la base. Hasta arriba si hubiera necesitado crampones porque era todo nieve y había más inclinación_
+_La brecha al fondo, y el camino parcialmente nevado que me habría podido acercar hasta la base. Hasta arriba hubiera necesitado crampones porque era todo nieve y había más inclinación_
+
+El trayecto de vuelta fué muy tranquilo, aproveché a hacer pequeños desvíos y buscar más vistas, y paré a comer tranquilamente en una faja con vistas al valle, y llegué sobre las 14h30 al refugio.
+
+![Image](fotos/dia2/valle1.jpg)
+_Vistas durante la comida, ahí en el rincón se puede ver el refugio a la distancia_
+
+Por la tarde estuvo chispeando un poco, así que aproveché a descansar un poco, leer, e investigar el camino para subir a Monteperdido el día siguiente, con varias rutas cortas. En total caminé unos 23km, 32000 pasos, menos desnivel que el día anterior y sin mochila, así que seguía muy fresco para el día fuerte. Durante la cena estuve hablando con una pareja con la que había coincidido en el hotel de Torla, y me contaron que también estaban haciendo rutas por Ordesa. Una de ellas fué una travesía desde Bujaruelo al Pic de la Pahule, desde donde hay unas vistas increíbles al circo (y la cascada) de Gavarnier, ruta de unas 6h en total. Por lo que ví allí los dos dias que estuve, el plan suele ser subir a Góriz, dormir, subir a Monteperdido y bajar a la pradera el mismo día, y empecé a darle vueltas a ver si podía encajar esa ruta el viernes...
+
+# Día 3
+
+Otro día de madrugar con muchas ganas de subir, y no se veía ninguna nube, así que me levanté a desayunar bien y preparar el día. Luego entendí que no se veía ninguna nube porque hacía muchísimo viento, lo que seguramente complicaría la subida un pelín.
+
+![Image](fotos/dia3/refugio1.jpg)
+_Si no había nubes es porque se las estaba llevando el fuerte viento_
+
+La subida a Monteperdido es de alta montaña, mucha parte de usar las manos, trepadas, caminos de piedra, y caminos sin marcar, aunque de fácil seguimiento con los hitos. Había varios grupos subiendo, lo que también ayuda a tomar según que decisiones. El trayecto es de subida constante, y bastante seguro, aunque hubo momentos en los que el viento apretaba fuerte y había que ir con más cuidado.
+
+![Image](fotos/dia3/monteperdido1.jpg)
+![Image](fotos/dia3/monteperdido2.jpg)
+_Las vistas al valle, pero desde más arriba aún_
+
+A los casi 3000 metros llegué justo abajo del Ibon helado, pero había un trozo de nieve final que era bastante delicado y casi todo el mundo que llegó allí se uso los crampones. Anque hubo algunos montañeros experimentados que lo hicieron sin crampones, gracias a que las pisadas estaban muy marcadas, yo no me atreví, y me conformé con haber llegado hasta allí, realmente un logro para mí y mi sedentarismo.
+
+![Image](fotos/dia3/monteperdido3.jpg)
+_Justo debajo del Ibon helado, a casi 3000 metros, a la derecha la escupidera y la cima a tiro de piedra_
+
+Durante el trayecto de bajada aún seguía muy bien físicamente, así que me desvié por la faja lateral, yendo hasta el Fraile, un camino muy suave y fácil y en el que acabé en un lago pequeño y vistas desde arriba del camino que hice el día anterior, y ahí acabé de fraguar mi improvisación. Bajaría hasta el refugio, cogería los bártulos y bajaría hasta la pradera, para ir a un hotel en Torla otra vez, y al día siguiente intentar la ruta al mirador de Gavarnier. Planazo!
+
+![Image](fotos/dia3/lago1.jpg)
+![Image](fotos/dia3/lago2.jpg)
+_Improvisando ruta por El Fraile, salió muy bien!_
+![Image](fotos/dia3/lago3.jpg)
+_Por ahí abajo estuve el día anterior_
+
+La bajada hasta el refugio fué bastante ligera, ya no hacía tanto viento y el cielo dejaba unas vistas clarísimas, y desde el Fraile improvisé un poco la bajada hasta volver al camino oficial. Una vez allí cancele la reserva, pagué todo (se puede pagar hasta con tarjeta, por cierto), y tras comer un poco empecé la bajada, sobre las 14h30. Además a medio camino es el único momento que hubo cobertura, no la había echado de menos pero aproveché a mandar un mensaje y una foto a la família, ya que no sabían nada de mí desde que dejé la pradera!
+
+![Image](fotos/dia3/refugio2.jpg)
+
+La bajada hasta la pradera decidí hacerla por el camino alternativo para ver como era (el que me salté a la subida, que llaman las Zetas), y me alegró de haber subido por las clavijas porque realmente es un camino bastante más largo y serpenteante. Las vistas seguían siendo buenas para ver el valle, eso sí!
+
+![Image](fotos/dia3/bajada1.jpg)
+![Image](fotos/dia3/bajada2.jpg)
+_Vistas desde el camino de las zetas_
+
+Una vez abajo empecé a notar bastante el cansancio, ya llevaba unos 23km de travesía, más de 30000 pasos, y aún me quedaban unos 9km hasta llegar a la pradera... el problema fué que además al bajar por las zetas me fuí por el lado del río equivocado, fuí bajando pensando que podría cruzar, pero llegó un momento que reconocí el error y tuve que subir hasta Cola de Caballo otra vez. Ese error me costó fácilmente unos 45min de caminata extra, y ahora sí el cansacio se notaba más.
+Paré a comer un poco más, hidratarme bien, hacía muchísimo calor, y fuí siguiendo el camino poco a poco, aunque los pies y rodillas empezaban a resentirse un poco, sobretodo tras haber bajado casi 2000 metros.
+
+![Image](fotos/dia3/bajada3.jpg)
+_Cola de Caballo desde las zetas, esos puntitos son gente!_
+![Image](fotos/dia3/pradera1.jpg)
+![Image](fotos/dia3/bajada4.jpg)
+_La ruta hasta la pradera tiene 2 camino, estas son las vistas del camino que va más pegado a la montaña, pero me gusta mucho más el principal_
+
+En este punto estaba realmente agotado, llevaba ya más de 33km acumulados, con unos 1200m de desnivel positivo (Monteperdido + El Fraile) y unos 2000m de negativo, iba parando cada media hora aproximadamente, el calor no ayudaba, aunque era más cansancio que dolor por lo que pude seguir, aunque fuera poco a poco. Íba muy bien de hora, pero aún así no quería tardar demasiado, ya que tenia que buscar donde dormir. En uno de los carteles ponía que eran unas 2h de trayecto hasta la pradera, y yo creo que tardé casi 3h... pero llegué!
+Una vez en el coche reservé un hotel rápidamente, en Torla, justo al lado del que había tenido el primer día, y ya más relajado me cambié, descansé y me fui allí a darme una buena ducha y tumbarme en la cama.
+La cosa es que llegué tan cansado que descarté la ruta a Gavarnier el día siguiente, pero buscando alternativas encontré una ruta más dominguera para el últim día, no sabía como me levantaría pero si me encontraba con ganas podía ser una buena despedida, unas 3~4h de excursión.
+Eso sí, primero una buena cena y luego a caer rendido.
