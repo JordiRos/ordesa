@@ -62,7 +62,7 @@ _Después de la subida inicial el camino transcurre por una larga llanura_
 Para el siguiente collado ya hay nieve y tengo que revisar bien la ruta para subir, no tiene mucha pérdida y como es un collado amplio puedo elegir bien el camino menos arriesgado, aunque hay poca inclinación e incluso subiendo por la nieve es muy seguro.
 
 ![Image](fotos/dia2/collado1.jpg)
-_Vista del collado, aun hay nieve pero la ruta es muy asequible_
+_Vista del collado, aún con nieve pero la ruta es muy asequible_
 
 ![Image](fotos/dia2/collado2.jpg)
 _Detrás mío vienen 2 grupos, pero se desviarían a partir del collado y no llego a coincidir con ellos, en la foto se pueden ver!_
