@@ -177,6 +177,6 @@ Lo primero que aprecié fué que durante los 4 días sólo estuve centrado en la
 Sobre las rutas, a toro pasado creo que fuí demasiado precavido, y podría haber gestionado un poco mejor las travesías, pero no pensaba que el entrenamiento me había ayudado a llegar en tan buena forma (relativamente hablando), y siendo la primera vez que iba a alta montaña, casi mejor quedarse corto que pasarse de cansancio.
 Tercero, ir en esta época significa ver bastante verde e incluso nieve, y los paisajes son más bonitos que no en el ávido verano. Aunque luego se necesita material extra (crampones y piolet) para ciertas rutas, habiendo visto el tipo de rutas creo que es asequible, pues se usa solamente en sitios puntuales.
 
-Repetire? Seguro que sí! Tanto en esta ruta (aún quiero hacer cima un día, sobretodo si voy con más gente) cómo en alguna otra que le eche el ojo... pero ya para después del verano.
+Repetire? Seguro que sí! Tanto en esta ruta (aún quiero hacer cima un día, sobretodo si voy con más gente) como en alguna otra que le eche el ojo... pero ya para después del verano.
 
-Gracias por leer hasta aquí, y si te sirve para motivarte a hacer una escapada (sólo o en grupo), pues mucho mejor :)
+Gracias por leerme, y si te sirve para motivarte a hacer una escapada (sólo o en grupo), pues mucho mejor, merece la pena! :)
