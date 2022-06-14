@@ -122,7 +122,7 @@ _Improvisando ruta por El Fraile, salió muy bien!_
 ![Image](fotos/dia3/lago3.jpg)
 _Por ahí abajo estuve el día anterior_
 
-La bajada hasta el refugio fué bastante ligera, ya no hacía tanto viento y el cielo dejaba unas vistas clarísimas, y desde el Fraile improvisé un poco la bajada hasta volver al camino oficial. Una vez allí cancele la reserva, pagué todo (se puede pagar hasta con tarjeta, por cierto), y tras comer un poco empecé la bajada, sobre las 14h30. Además a medio camino es el único momento que hubo cobertura, no la había echado de menos pero aproveché a mandar un mensaje y una foto a la família, ya que no sabían nada de mí desde que dejé la pradera!
+La bajada hasta el refugio fué bastante ligera, ya no hacía tanto viento y el cielo dejaba unas vistas clarísimas, y desde el Fraile improvisé un poco la bajada hasta volver al camino oficial. Una vez allí cancele la reserva, pagué todo (se puede pagar hasta con tarjeta, por cierto), y tras comer un poco empecé la bajada, sobre las 14h30. Además a medio camino es el único momento que hubo cobertura, no la había echado de menos pero aproveché a mandar un mensaje y una foto a la família, ya que no sabían nada de mí desde que dejé la pradera! Allí había ya todos los grupos que habían intentado hacer cima, y todos desistieron de intentarlo por el gran viento que hizo arriba, al final es mejor no arriesgar por muy cerca que se esté de la cima. Aunque me hubiera gustado llegar al Ibon, me quedo con la sensación de que físicamente podría hacerlo bien.
 
 ![Image](fotos/dia3/refugio2.jpg)
 
