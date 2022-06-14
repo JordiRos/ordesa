@@ -31,10 +31,10 @@ La ruta desde la pradera hasta Cola de caballo son unas 2h30. Es una ruta variad
 ![Image](fotos/dia1/pradera2.jpg)
 ![Image](fotos/dia1/cola1.jpg)
 
-Trás reponer un poco de fuerzas reanudé la marcha y conocí un muchacho de Colombia (Mauricio) que estaba siguiendo la GR11, que pasa por Góriz también - él iba a subir por las clavijas, una pared que hay que trepar pero que hay cadenas para ayudar, y que ahorra una media hora de trayecto, así que me animé a ir con él. No es un tramo difícil, pero lo hice con mucho cuidado porqué con la mochila me podría ir para atrás, y salvo un par de zancadas altas es bastante seguro.
+Trás reponer un poco de fuerzas reanudé la marcha y conocí un muchacho de Colombia (Mauricio) que estaba siguiendo la GR11, que pasa por Góriz también - él iba a subir por las clavijas de Soaso, una pared que hay que trepar pero que hay cadenas para ayudar, y que ahorra una media hora de trayecto, así que me animé a ir con él. No es un tramo difícil, pero lo hice con mucho cuidado porqué con la mochila me podría ir para atrás, y salvo un par de zancadas altas es bastante seguro.
 
 ![Image](fotos/dia1/clavijas1.jpg)
-_Vistas tras subir las clavijas de Soaso_
+_Vistas tras subir por las clavijas de Soaso_
 
 A partir de ahí las vistas mejoraban por momentos, por delante el gran Monteperdido, por detrás el valle entero. El tramo final costó 1h30 aproximadamente, enseguida se suben metros y entre el calor y la mochila tuve que hacer un par de paradas más, pero aprendí de Mauricio a caminar un poco más lento y parar 2-3 minutos para recuperar aliento cuando me hiciera falta. Fruta y una barrita ayudaron también! Al final llegamos al refugio sobre las 12h30, 4h de trayecto. Llegué un poco cansado pero mucho mejor de lo que esperaba. Sabiéndolo seguramente me habría desviado en la pradera para ver las cascadas de Cotatuero, calculo que habría sido 1h30 de desvío, pero no quería arriesgar a llegar demasiado cansado arriba el primer día.
 
@@ -48,7 +48,7 @@ Como llegué muy bien fisicamente, después de comer y descansar un poco me hice
 
 # Día 2
 
-Sobre las 7 estaba ya desayunando y revisando la ruta del día. El plan era llegar hasta la base de la brecha de Rolando, aunque en el refugio ya me comentaron que había mucha nieve aún, y que bajara hasta abajo despues del segundo collado para poder subir bien, por la ruta corta era más peligroso. Además el día iba a estar nublado, y aunque no había previsión de nubes podía haber más riesgo. A las 7h30 arranqué dirección la brecha.
+Sobre las 7 estaba ya desayunando y revisando la ruta del día. El plan era llegar hasta la base de la brecha de Rolando, aunque en el refugio ya me comentaron que había mucha nieve aún, y que bajara hasta abajo despues del segundo collado para poder subir bien, por la ruta corta era más peligroso. Además el día iba a estar nublado, y aunque no había previsión de lluvia podía haber más riesgo, así que a las 7h30 arranqué dirección la brecha.
 
 ![Image](fotos/dia2/refugio1.jpg)
 _No lo veo claro eh_
