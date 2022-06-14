@@ -147,7 +147,7 @@ Una vez en el coche reservé un hotel rápidamente, en Torla, justo al lado del 
 La cosa es que llegué tan cansado que descarté la ruta a Gavarnier el día siguiente, pero buscando alternativas encontré una ruta más dominguera para el últim día, no sabía como me levantaría pero si me encontraba con ganas podía ser una buena despedida, unas 3~4h de excursión.
 Eso sí, primero una buena cena y luego a caer rendido.
 
-![Image](fotos/dia3/torla1.jpg)
+![Image](fotos/dia4/torla1.jpg)
 _Otra vez en Torla!_
 
 # Día 4, el último!
@@ -155,19 +155,19 @@ _Otra vez en Torla!_
 Descansé super bien en el hotel, no se cuanto zumo natural tomé pero seguramente más de lo recomendable, y el resto del desayuno igual. Me sentía bastante cansado y definitivamente no iba a hacer la ruta de Gavarnier, pero cerca de Bujaruelo hay el valle de Otal e iban a ser unas 2~3h de excursión suave, así que fuí para allá.
 Aunque empecé motivado porque ya era mi último día, entre el cansancio y que era un camino de pista con ligera subida me noté con menos ganas, aún así seguí para ver que me encontraría.
 
-![Image](fotos/dia3/otal2.jpg)
+![Image](fotos/dia4/otal2.jpg)
 _Será por rios!_
 
 A medio camino creo que el desayuno hizo efecto y fuí recuperando energía, hasta que por fin llegué al valle y pude disfrutar de las vistas. Una vez allí el camino seguía hasta el final del valle, y como ya era plano aproveché a seguir tirando, era muy buena hora y había muy poca gente.
 
-![Image](fotos/dia3/otal3.jpg)
+![Image](fotos/dia4/otal3.jpg)
 _Y será por cascadas!_
-![Image](fotos/dia3/otal4.jpg)
+![Image](fotos/dia4/otal4.jpg)
 
 Aproveché a rellenar el agua bajo la cascada, el calor apretaba mucho mas que en Monteperdido y me puse en pantalón corto, la primera vez en toda la semana. Y crema solar, que no falte nunca!
 Aunque había sido un camino bastante fácil, y de solo unas 2h, notaba el cansancio aún del día anterior, y sabía que no aguantaría una travesía de mas de 4h, así que volví al principio del valle e hice una parada para comer y descansar bien antes de la bajada. Se ve que es una excursión muy común, y a esta ahora había muchos grupos que llegaban o ya estaban allí comiendo.
 
-![Image](fotos/dia3/otal5.jpg)
+![Image](fotos/dia4/otal5.jpg)
 _Un señor pescando entre vacas_
 
 Llego abajo tras casi 4h de travesía, un poco agotado pero sin molestias aparentes, y aprovecho mis últimos momentos en el río cerca de Bujaruelo, donde además hay un camping bastante concurrido. Descanso, para a comer en Broto y ya directo a casa. El termómetro del coche marca 35 grados... parece verano ya.
