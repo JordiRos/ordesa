@@ -94,7 +94,7 @@ El trayecto de vuelta es muy tranquilo, aprovecho a hacer pequeños desvíos y b
 ![Image](fotos/dia2/valle1.jpg)
 _Vistas durante la comida, ahí en el rincón se puede ver el refugio a la distancia_
 
-Estuvo chispeando casi toda la tarde, así que aprovecho a descansar un poco, leer, e investigar el camino para subir a Monteperdido el día siguiente, con varias rutas cortas. En total habré caminado unos 23km, 32000 pasos, menos desnivel que el día anterior y sin mochila, así que sigo muy fresco para el día fuerte. Durante la cena hablo con una pareja con la que había coincidido en el hotel de Torla, y me cuentan que también están haciendo rutas por Ordesa. Una de ellas fué una travesía desde Bujaruelo al Pic de la Pahule, desde donde hay unas vistas increíbles al circo (y la cascada) de Gavarnier, ruta de unas 6h en total. Por lo que ví allí los dos dias que estuve, el plan suele ser subir a Góriz, dormir, subir a Monteperdido y bajar a la pradera el mismo día, y empecé a darle vueltas a hacer lo mismo y encajar Gavernier en mi último día...
+Estuvo chispeando casi toda la tarde, así que aprovecho a descansar un poco, leer, e investigar el camino para subir a Monteperdido el día siguiente, mientras hago varias rutas cortas. En total habré caminado unos 23km, 32000 pasos, menos desnivel que el día anterior y sin mochila, así que sigo muy fresco para el día fuerte. Durante la cena hablo con una pareja con la que había coincidido en el hotel de Torla, y me cuentan que también están haciendo rutas por Ordesa. Una de ellas fué una travesía desde Bujaruelo al Pic de la Pahule, desde donde hay unas vistas increíbles al circo (y la cascada) de Gavarnier, ruta de unas 6h en total. Por lo que ví allí los dos dias que estuve, el plan suele ser subir a Góriz, dormir, subir a Monteperdido y bajar a la pradera el mismo día, y empecé a darle vueltas a hacer lo mismo y encajar Gavernier en mi último día...
 
 # Día 3
 
@@ -115,7 +115,7 @@ A medio camino hay un poco de cobertura, no la he echado de menos en todo el via
 ![Image](fotos/dia3/monteperdido3.jpg)
 _Justo debajo del Ibon helado, a casi 3000 metros, a la derecha la escupidera y la cima a tiro de piedra_
 
-Durante el trayecto de bajada aún sigo muy bien físicamente, así que me desvio por la faja lateral, yendo hasta el Fraile, un camino muy suave y fácil y en el que acabo en un lago pequeño y con vistas desde arriba del camino que hice el día anterior... ahí acabé de fraguar mi improvisación. Bajaría hasta el refugio, cogería los bártulos y bajaría hasta la pradera, para ir a un hotel en Torla otra vez, y al día siguiente intentar la ruta al mirador de Gavarnier. Planazo!
+Durante el trayecto de bajada aún sigo muy bien físicamente, así que me desvio por la faja lateral, yendo hasta el Fraile, un camino muy suave y fácil y en el que acabo en un lago pequeño y con vistas desde arriba del camino que hice el día anterior... ahí acabo de fraguar mi improvisación. Bajaría hasta el refugio, cogería los bártulos y bajaría hasta la pradera, para ir a un hotel en Torla otra vez, y al día siguiente intentar la ruta al mirador de Gavarnier. Planazo!
 
 ![Image](fotos/dia3/lago1.jpg)
 ![Image](fotos/dia3/lago2.jpg)
@@ -133,8 +133,8 @@ La bajada hasta la pradera decido hacerla por el camino alternativo para ver com
 ![Image](fotos/dia3/bajada2.jpg)
 _Vistas desde el camino de las zetas_
 
-Una vez abajo empiezo a notar bastante el cansancio, ya llevo unos 23km de travesía, más de 30000 pasos, y aún me quedan unos 9km hasta llegar a la pradera... el problema es que además al bajar por las zetas me voy por el lado del río equivocado, pensando que podría cruzar, pero llega un momento que reconozco el error y tengo que subir hasta Cola de Caballo otra vez. Este error me cuesta fácilmente unos 45min de caminata extra, y ahora sí el cansacio lo empiezo a notar.
-Paro a comer un poco más, hidratarme bien (hace muchísimo calor), y voy siguiendo el camino poco a poco, aunque los pies y rodillas empiezan a resentirse un poco, sobretodo tras haber subido unos 1200 metros y bajado más de 1500...
+Una vez abajo empiezo a notar bastante el cansancio, ya llevo unos 23km de travesía, más de 30000 pasos, y aún me quedan casi 10km hasta llegar a la pradera... el problema es que además al bajar por las zetas me voy por el lado del río equivocado, pensando que podría cruzar, pero llega un momento que reconozco el error y tengo que subir hasta Cola de Caballo otra vez. Este error me cuesta fácilmente unos 45min de caminata extra, y ahora sí el cansacio lo empiezo a notar.
+Paro a comer un poco más, hidratarme bien (hace muchísimo calor), y voy siguiendo el camino poco a poco, aunque los pies y rodillas empiezan a resentirse un poco...
 
 ![Image](fotos/dia3/bajada3.jpg)
 _Cola de Caballo desde las zetas, esos puntitos son gente!_
@@ -142,9 +142,9 @@ _Cola de Caballo desde las zetas, esos puntitos son gente!_
 ![Image](fotos/dia3/bajada4.jpg)
 _La ruta hasta la pradera tiene 2 caminos, estas son las vistas del camino que va más pegado a la montaña, pero me gusta mucho más el principal_
 
-En este punto estoy realmente agotado, llevo ya más de 33km acumulados, con unos 1200m de desnivel positivo (Monteperdido + El Fraile) y casi 2000m de negativo, voy parando cada media hora aproximadamente, y el calor no ayuda. Es más cansancio que dolor por lo que puedo seguir bien, aunque mucho mas lento de lo habitual. En uno de los carteles ponía que eran unas 2h de trayecto hasta la pradera, y yo creo que estoy tardando casi 3h... pero al fin llego!
+En este punto estoy realmente agotado, llevo ya más de 33km acumulados, con unos 1200 metros de desnivel positivo (Monteperdido + El Fraile) y casi 2000 de bajada, voy parando cada media hora aproximadamente, y el calor no ayuda. Es más cansancio que dolor por lo que puedo seguir bien, aunque mucho mas lento de lo habitual. En uno de los carteles pone que hay unas 2h de trayecto hasta la pradera, y yo creo que estoy tardando casi 3h... pero al fin llego!
 Una vez en el coche reservo un hotel rápidamente, justo al lado del que había tenido el primer día en Torla, y ya más relajado me cambio, descanso y me voy allí a darme una buena ducha y tumbarme en la cama.
-La cosa es que llego tan cansado que descarto la ruta a Gavarnier el día siguiente, pero buscando alternativas encuentro una ruta más dominguera para el últim día, no sé como me levantaré pero si me encuentro con fuerza, son sólo unas 3~4h de travesía.
+La cosa es que llego tan cansado que descarto la ruta a Gavarnier el día siguiente, pero buscando alternativas encuentro una ruta más dominguera para el últim día, no sé como me levantaré pero si me encuentro con fuerza, son sólo unas 3~4 horas.
 Eso sí, primero una buena cena y luego a caer rendido.
 
 ![Image](fotos/dia4/torla1.jpg)
@@ -152,29 +152,29 @@ _Otra vez en Torla!_
 
 # Día 4, el último!
 
-Descansé super bien en el hotel, no se cuanto zumo natural tomé pero seguramente más de lo recomendable, y el resto del desayuno igual. Me sentía bastante cansado y definitivamente no iba a hacer la ruta de Gavarnier, pero cerca de Bujaruelo hay el valle de Otal e iban a ser unas 2~3h de excursión suave, así que fuí para allá.
-Aunque empecé motivado porque ya era mi último día, entre el cansancio y que era un camino de pista con ligera subida me noté con menos ganas, aún así seguí para ver que me encontraría.
+Descanso super bien en el hotel, no se cuanto zumo natural tomo pero seguramente más de lo recomendable, y el resto del desayuno igual. Me siento bastante cansado y definitivamente no haré la ruta de Gavarnier, pero cerca de Bujaruelo hay el valle de Otal y parece una excursión suave, así que me decido a ir para para allá.
+Aunque empiezo motivado porque ya es mi último día, entre el cansancio y que es un camino de pista con ligera subida me noto con menos ganas, aún así sigo para ver que me encuentro.
 
 ![Image](fotos/dia4/otal2.jpg)
 _Será por rios!_
 
-A medio camino creo que el desayuno hizo efecto y fuí recuperando energía, hasta que por fin llegué al valle y pude disfrutar de las vistas. Una vez allí el camino seguía hasta el final del valle, y como ya era plano aproveché a seguir tirando, era muy buena hora y había muy poca gente.
+A medio camino creo que el desayuno hace efecto y recupero energía, hasta que por fin llego al valle y puedo disfrutar de las vistas. Una vez allí el camino sigue hasta el final del valle, y como ya es plano aprovecho a seguir tirando, es buena hora y hay muy poca gente.
 
 ![Image](fotos/dia4/otal3.jpg)
 _Y será por cascadas!_
 ![Image](fotos/dia4/otal4.jpg)
 
-Aproveché a rellenar el agua bajo la cascada, el calor apretaba mucho mas que en Monteperdido y me puse en pantalón corto, la primera vez en toda la semana. Y crema solar, que no falte nunca!
-Aunque había sido un camino bastante fácil, y de solo unas 2h, notaba el cansancio aún del día anterior, y sabía que no aguantaría una travesía de mas de 4h, así que volví al principio del valle e hice una parada para comer y descansar bien antes de la bajada. Se ve que es una excursión muy común, y a esta ahora había muchos grupos que llegaban o ya estaban allí comiendo.
+Al final del valle aprovecho a rellenar el agua bajo una cascada, el calor aprieta mucho más que en Monteperdido y me pongo en pantalón corto, la primera vez en toda la semana. Y crema solar, que no falte nunca!
+Aunque ha sido un camino bastante fácil y de sólo unas 2h, noto mucho el cansancio del día anterior, y sé que no aguantaré una travesía de mas de 4 horas, así que voy planeando la vuelta al principio del valle para parar a comer y descansar un rato antes de bajar. Se ve que es una excursión muy común, y a esta ahora hay muchos grupos que han o estan llegando para comer ahí.
 
 ![Image](fotos/dia4/otal5.jpg)
 _Un señor pescando entre vacas_
 
-Llego abajo tras casi 4h de travesía, un poco agotado pero sin molestias aparentes, y aprovecho mis últimos momentos en el río cerca de Bujaruelo, donde además hay un camping bastante concurrido. Descanso, para a comer en Broto y ya directo a casa. El termómetro del coche marca 35 grados... parece verano ya.
+Llego abajo tras casi 4h de travesía, un poco agotado pero sin molestias aparentes, y aprovecho mis últimos momentos en el río cerca de Bujaruelo, donde además hay un camping bastante concurrido. Descanso, para a comer en Broto y ya directo a casa. El termómetro del coche marca 35 grados... es verano ya?
 
 # Conclusiones!
 
-Lo primero que aprecié fué que durante los 4 días sólo estuve centrado en la montaña y las rutas, sin distracciones, ni emails, ni trabajo, ni redes sociales ni series ni nada. De hecho cuando tuve cobertura en Monteperdido me llegaron un montón de notifaciones, pero no las leí hasta el día del hotel, y me dí cuenta la cantidad de tiempo que dedicamos a la vida online, y la cantidad de información que se acumuló en sólo 4 días. Da para pensar un poco...
+Lo primero que aprecié fué que durante los 4 días sólo estuve centrado en la montaña y las rutas, sin distracciones, ni emails, ni trabajo, ni redes sociales ni series ni nada. De hecho cuando tuve cobertura en Monteperdido me llegaron un montón de notifaciones, pero no las leí hasta el día del hotel, y me dí cuenta la cantidad de tiempo que dedicamos a la vida online, y la cantidad de información que se acumuló en sólo 4 días (la mayoría no urgente). Da para pensar un poco...
 Sobre las rutas, a toro pasado creo que fuí demasiado precavido, y podría haber gestionado un poco mejor las travesías, pero no pensaba que el entrenamiento me había ayudado a llegar en tan buena forma (relativamente hablando), y siendo la primera vez que iba a alta montaña, casi mejor quedarse corto que pasarse de cansancio.
 Tercero, ir en esta época significa ver bastante verde e incluso nieve, y los paisajes son más bonitos que no en el ávido verano. Aunque luego se necesita material extra (crampones y piolet) para ciertas rutas, habiendo visto el tipo de rutas creo que es asequible, pues se usa solamente en sitios puntuales.
 
