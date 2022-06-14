@@ -1,3 +1,5 @@
+# Ruta por Ordesa y Monteperdido
+
 # Origen
 
 En verano de 2021 fuimos al valle de Pineta a la boda de mi primo. Carol ya había ido con los scouts de joven y ya me dijo que era muy bonito, así que aprovechamos a hacer una excursión a ver algunas cascadas y visitar algunos pueblos que ella conocía. Claro que era bonito, pero además impresionante ver esas montañas tan altas, y allí se me ocurrió que nunca había subido una montaña así... hacía poco que estaba saliendo a caminar más y comer mejor, y pensé en que entrenar para poder subir Monteperdido era la motivación para continuar haciéndolo regularmente, así que me puse de plazo el verano de 2022 para intentar la hazaña. Era importante para mí poder llegar en buena forma y me lo tomé en serio, pero esto daría para otro post, otro día quizás!
