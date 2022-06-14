@@ -109,7 +109,8 @@ La subida a Monteperdido es de alta montaña, mucha parte de usar las manos, tre
 ![Image](fotos/dia3/monteperdido2.jpg)
 _Las vistas al valle, pero desde más arriba aún_
 
-A los casi 3000 metros llegué justo abajo del Ibon helado, pero había un trozo de nieve final que era bastante delicado y casi todo el mundo que llegó allí se uso los crampones. Anque hubo algunos montañeros experimentados que lo hicieron sin crampones, gracias a que las pisadas estaban muy marcadas, yo no me atreví, y me conformé con haber llegado hasta allí, realmente un logro para mí y mi sedentarismo.
+A los casi 3000 metros llegué justo abajo del Ibon helado, pero había un trozo de nieve final que era bastante delicado y casi todo el mundo que llegó allí se puso los crampones. Anque hubo algunos montañeros experimentados que lo hicieron sin crampones, gracias a que las pisadas estaban muy marcadas, yo no me atreví, y me conformé con haber llegado hasta allí, realmente un logro para mí y mi sedentarismo.
+Además a medio camino hubo un poco de cobertura, no la había echado de menos en todo el viaje pero aproveché a mandar un mensaje y una foto a la família, ya que no sabían nada de mí desde que dejé la pradera! 
 
 ![Image](fotos/dia3/monteperdido3.jpg)
 _Justo debajo del Ibon helado, a casi 3000 metros, a la derecha la escupidera y la cima a tiro de piedra_
@@ -122,7 +123,7 @@ _Improvisando ruta por El Fraile, salió muy bien!_
 ![Image](fotos/dia3/lago3.jpg)
 _Por ahí abajo estuve el día anterior_
 
-La bajada hasta el refugio fué bastante ligera, ya no hacía tanto viento y el cielo dejaba unas vistas clarísimas, y desde el Fraile improvisé un poco la bajada hasta volver al camino oficial. Una vez allí cancele la reserva, pagué todo (se puede pagar hasta con tarjeta, por cierto), y tras comer un poco empecé la bajada, sobre las 14h30. Además a medio camino es el único momento que hubo cobertura, no la había echado de menos pero aproveché a mandar un mensaje y una foto a la família, ya que no sabían nada de mí desde que dejé la pradera! Allí había ya todos los grupos que habían intentado hacer cima, y todos desistieron de intentarlo por el gran viento que hizo arriba, al final es mejor no arriesgar por muy cerca que se esté de la cima. Aunque me hubiera gustado llegar al Ibon, me quedo con la sensación de que físicamente podría hacerlo bien.
+La bajada hasta el refugio fué bastante ligera, ya no hacía tanto viento y el cielo dejaba unas vistas clarísimas, y desde el Fraile improvisé un poco la bajada hasta volver al camino oficial. Una vez allí cancele la reserva, pagué todo (se puede pagar hasta con tarjeta, por cierto), y tras comer un poco empecé la bajada, sobre las 14h30. Allí había ya todos los grupos que habían intentado hacer cima, y todos desistieron de intentarlo por el gran viento que hizo arriba, al final es mejor no arriesgar por muy cerca que se esté de la cima. Aunque me hubiera gustado llegar al Ibon, me quedo con la sensación de que físicamente podría hacerlo bien.
 
 ![Image](fotos/dia3/refugio2.jpg)
 
@@ -139,9 +140,44 @@ Paré a comer un poco más, hidratarme bien, hacía muchísimo calor, y fuí sig
 _Cola de Caballo desde las zetas, esos puntitos son gente!_
 ![Image](fotos/dia3/pradera1.jpg)
 ![Image](fotos/dia3/bajada4.jpg)
-_La ruta hasta la pradera tiene 2 camino, estas son las vistas del camino que va más pegado a la montaña, pero me gusta mucho más el principal_
+_La ruta hasta la pradera tiene 2 caminos, estas son las vistas del camino que va más pegado a la montaña, pero me gusta mucho más el principal_
 
-En este punto estaba realmente agotado, llevaba ya más de 33km acumulados, con unos 1200m de desnivel positivo (Monteperdido + El Fraile) y unos 2000m de negativo, iba parando cada media hora aproximadamente, el calor no ayudaba, aunque era más cansancio que dolor por lo que pude seguir, aunque fuera poco a poco. Íba muy bien de hora, pero aún así no quería tardar demasiado, ya que tenia que buscar donde dormir. En uno de los carteles ponía que eran unas 2h de trayecto hasta la pradera, y yo creo que tardé casi 3h... pero llegué!
+En este punto estaba realmente agotado, llevaba ya más de 33km acumulados, con unos 1200m de desnivel positivo (Monteperdido + El Fraile) y unos 2000m de negativo, iba parando cada media hora aproximadamente, y el calor no ayudaba. Era más cansancio que dolor por lo que pude seguir bien, aunque fuí mucho mas lento de lo habitual. En uno de los carteles ponía que eran unas 2h de trayecto hasta la pradera, y yo creo que tardé casi 3h... pero llegué!
 Una vez en el coche reservé un hotel rápidamente, en Torla, justo al lado del que había tenido el primer día, y ya más relajado me cambié, descansé y me fui allí a darme una buena ducha y tumbarme en la cama.
 La cosa es que llegué tan cansado que descarté la ruta a Gavarnier el día siguiente, pero buscando alternativas encontré una ruta más dominguera para el últim día, no sabía como me levantaría pero si me encontraba con ganas podía ser una buena despedida, unas 3~4h de excursión.
 Eso sí, primero una buena cena y luego a caer rendido.
+
+![Image](fotos/dia3/torla1.jpg)
+_Otra vez en Torla!_
+
+# Día 4, el último!
+
+Descansé super bien en el hotel, no se cuanto zumo natural tomé pero seguramente más de lo recomendable, y el resto del desayuno igual. Me sentía bastante cansado y definitivamente no iba a hacer la ruta de Gavarnier, pero cerca de Bujaruelo hay el valle de Otal e iban a ser unas 2~3h de excursión suave, así que fuí para allá.
+Aunque empecé motivado porque ya era mi último día, entre el cansancio y que era un camino de pista con ligera subida me noté con menos ganas, aún así seguí para ver que me encontraría.
+
+![Image](fotos/dia3/otal2.jpg)
+_Será por rios!_
+
+A medio camino creo que el desayuno hizo efecto y fuí recuperando energía, hasta que por fin llegué al valle y pude disfrutar de las vistas. Una vez allí el camino seguía hasta el final del valle, y como ya era plano aproveché a seguir tirando, era muy buena hora y había muy poca gente.
+
+![Image](fotos/dia3/otal3.jpg)
+_Y será por cascadas!_
+![Image](fotos/dia3/otal4.jpg)
+
+Aproveché a rellenar el agua bajo la cascada, el calor apretaba mucho mas que en Monteperdido y me puse en pantalón corto, la primera vez en toda la semana. Y crema solar, que no falte nunca!
+Aunque había sido un camino bastante fácil, y de solo unas 2h, notaba el cansancio aún del día anterior, y sabía que no aguantaría una travesía de mas de 4h, así que volví al principio del valle e hice una parada para comer y descansar bien antes de la bajada. Se ve que es una excursión muy común, y a esta ahora había muchos grupos que llegaban o ya estaban allí comiendo.
+
+![Image](fotos/dia3/otal5.jpg)
+_Un señor pescando entre vacas_
+
+Llego abajo tras casi 4h de travesía, un poco agotado pero sin molestias aparentes, y aprovecho mis últimos momentos en el río cerca de Bujaruelo, donde además hay un camping bastante concurrido. Descanso, para a comer en Broto y ya directo a casa. El termómetro del coche marca 35 grados... parece verano ya.
+
+# Conclusiones!
+
+Lo primero que aprecié fué que durante los 4 días sólo estuve centrado en la montaña y las rutas, sin distracciones, ni emails, ni trabajo, ni redes sociales ni series ni nada. De hecho cuando tuve cobertura en Monteperdido me llegaron un montón de notifaciones, pero no las leí hasta el día del hotel, y me dí cuenta la cantidad de tiempo que dedicamos a la vida online, y la cantidad de información que se acumuló en sólo 4 días. Da para pensar un poco...
+Sobre las rutas, a toro pasado creo que fuí demasiado precavido, y podría haber gestionado un poco mejor las travesías, pero no pensaba que el entrenamiento me había ayudado a llegar en tan buena forma (relativamente hablando), y siendo la primera vez que iba a alta montaña, casi mejor quedarse corto que pasarse de cansancio.
+Tercero, ir en esta época significa ver bastante verde e incluso nieve, y los paisajes son más bonitos que no en el ávido verano. Aunque luego se necesita material extra (crampones y piolet) para ciertas rutas, habiendo visto el tipo de rutas creo que es asequible, pues se usa solamente en sitios puntuales.
+
+Repetire? Seguro que sí! Tanto en esta ruta (aún quiero hacer cima un día, sobretodo si voy con más gente) cómo en alguna otra que le eche el ojo... pero ya para después del verano.
+
+Gracias por leer hasta aquí, y si te sirve para motivarte a hacer una escapada (sólo o en grupo), pues mucho mejor :)
