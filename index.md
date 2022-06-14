@@ -9,7 +9,7 @@ _Vistas desde el valle de Pineta_
 
 # Planning
 
-Al principio pensé en ir con 2/3 amigos que habían mostrado interés, pero por cambio de trabajo se precipitó la aventura a primeros de junio, y no me daba tiempo a organizarlo con gente - sobretodo porque el refugio de Góriz se llenó enseguida y corria el riesgo de quedarnos sin sitio, así que cambié los planes y reservé 5 días en solitario.
+Al principio pensé en ir con 2/3 amigos que habían mostrado interés, pero por cambio de trabajo se precipitó la aventura a primeros de junio, y no me daba tiempo a organizarlo con gente - sobretodo porque el refugio de Góriz se llenó enseguida y corria el riesgo de quedarnos sin sitio, así que cambié los planes y reservé 5 días en solitario.7
 
 Debido a las fechas sabía que aún habría nieve en la escupidera, el tramo final y más complicado, con una gran inclinación y uno de los puntos donde más gente fallece en los pirineos. Así que ya me iba haciendo a la idea que no subiría arriba del todo, pero tenía más cosas previstas y no iba a correr riesgos innecesarios. La idea inicial era viajar a Torla el día 6, dormir en un hotel y descansar bien. El 7 subir a Góriz, el 8 ruta hasta la brecha de Rolando (o cerca), el 9 ruta hasta Monteperdido (al menos hasta el Ibon helado), y el 10 bajar otra vez a la pradera y de ahí ya conducir hasta casa (4 horas). La ventaja de ir solo es que pude improvisar un poco, pero tenía un buen plan.
 
@@ -156,12 +156,11 @@ Descanso super bien en el hotel, no se cuanto zumo natural tomo pero seguramente
 Aunque empiezo motivado porque ya es mi último día, entre el cansancio y que es un camino de pista con ligera subida me noto con menos ganas, aún así sigo para ver que me encuentro.
 
 ![Image](fotos/dia4/otal2.jpg)
-_Será por rios!_
 
 A medio camino creo que el desayuno hace efecto y recupero energía, hasta que por fin llego al valle y puedo disfrutar de las vistas. Una vez allí el camino sigue hasta el final del valle, y como ya es plano aprovecho a seguir tirando, es buena hora y hay muy poca gente.
 
 ![Image](fotos/dia4/otal3.jpg)
-_Y será por cascadas!_
+_Será por cascadas!_
 ![Image](fotos/dia4/otal4.jpg)
 
 Al final del valle aprovecho a rellenar el agua bajo una cascada, el calor aprieta mucho más que en Monteperdido y me pongo en pantalón corto, la primera vez en toda la semana. Y crema solar, que no falte nunca!
