@@ -134,7 +134,7 @@ La bajada hasta la pradera decidí hacerla por el camino alternativo para ver co
 _Vistas desde el camino de las zetas_
 
 Una vez abajo empecé a notar bastante el cansancio, ya llevaba unos 23km de travesía, más de 30000 pasos, y aún me quedaban unos 9km hasta llegar a la pradera... el problema fué que además al bajar por las zetas me fuí por el lado del río equivocado, fuí bajando pensando que podría cruzar, pero llegó un momento que reconocí el error y tuve que subir hasta Cola de Caballo otra vez. Ese error me costó fácilmente unos 45min de caminata extra, y ahora sí el cansacio se notaba más.
-Paré a comer un poco más, hidratarme bien, hacía muchísimo calor, y fuí siguiendo el camino poco a poco, aunque los pies y rodillas empezaban a resentirse un poco, sobretodo tras haber bajado casi 2000 metros.
+Paré a comer un poco más, hidratarme bien, hacía muchísimo calor, y fuí siguiendo el camino poco a poco, aunque los pies y rodillas empezaban a resentirse un poco, sobretodo tras haber subido unos 1000 metros y bajado más de 1500...
 
 ![Image](fotos/dia3/bajada3.jpg)
 _Cola de Caballo desde las zetas, esos puntitos son gente!_
