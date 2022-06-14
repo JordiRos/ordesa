@@ -147,7 +147,7 @@ Una vez en el coche reservo un hotel rápidamente, justo al lado del que había 
 La cosa es que llego tan cansado que descarto la ruta a Gavarnier el día siguiente, pero buscando alternativas encuentro una ruta más dominguera para el últim día, no sé como me levantaré pero si me encuentro con fuerza, son sólo unas 3~4 horas.
 Eso sí, primero una buena cena y luego a caer rendido.
 
-![Image](fotos/dia4/torla1.jpg)
+![Image](fotos/dia3/torla1.jpg)
 _Otra vez en Torla!_
 
 # Día 4, el último!
