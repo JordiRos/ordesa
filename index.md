@@ -1,17 +1,17 @@
-## Ruta por Ordesa y Monteperdido
+## Ruta por Ordesa y Monte Perdido
 
 # Origen
 
-En verano de 2021 fuimos al valle de Pineta a la boda de mi primo. Carol ya había ido con los scouts de joven y ya me dijo que era muy bonito, así que aprovechamos a hacer una excursión a ver algunas cascadas y visitar algunos pueblos que ella conocía. Claro que era bonito, pero además impresionante ver esas montañas tan altas, y allí se me ocurrió que nunca había subido una montaña así... hacía poco que estaba saliendo a caminar más y comer mejor, y pensé en que entrenar para poder subir Monteperdido era la motivación para continuar haciéndolo regularmente, así que me puse de plazo el verano de 2022 para intentar la hazaña. Era importante para mí poder llegar en buena forma y me lo tomé en serio, pero esto daría para otro post, otro día quizás!
+En verano de 2021 fuimos al valle de Pineta a la boda de mi primo. Carol ya había ido con los scouts de joven y ya me dijo que era muy bonito, así que aprovechamos a hacer una excursión a ver algunas cascadas y visitar algunos pueblos que ella conocía. Claro que era bonito, pero además impresionante ver esas montañas tan altas, y allí se me ocurrió que nunca había subido una montaña así... hacía poco que estaba saliendo a caminar más y comer mejor, y pensé en que entrenar para poder subir Monte Perdido era la motivación para continuar haciéndolo regularmente, así que me puse de plazo el verano de 2022 para intentar la hazaña. Era importante para mí poder llegar en buena forma y me lo tomé en serio, pero esto daría para otro post, otro día quizás!
 
 ![Image](fotos/pineta.jpg)
 _Vistas desde el valle de Pineta_
 
 # Planning
 
-Al principio pensé en ir con 2/3 amigos que habían mostrado interés, pero por cambio de trabajo se precipitó la aventura a primeros de junio, y no me daba tiempo a organizarlo con gente - sobretodo porque el refugio de Góriz se llenó enseguida y corria el riesgo de quedarnos sin sitio, así que cambié los planes y reservé 5 días en solitario.7
+Al principio pensé en ir con 2/3 amigos que habían mostrado interés, pero por cambio de trabajo se precipitó la aventura a primeros de junio, y no me daba tiempo a organizarlo con gente - sobretodo porque el refugio de Góriz se llenó enseguida y corria el riesgo de quedarnos sin sitio, así que cambié los planes y reservé 5 días en solitario.
 
-Debido a las fechas sabía que aún habría nieve en la escupidera, el tramo final y más complicado, con una gran inclinación y uno de los puntos donde más gente fallece en los pirineos. Así que ya me iba haciendo a la idea que no subiría arriba del todo, pero tenía más cosas previstas y no iba a correr riesgos innecesarios. La idea inicial era viajar a Torla el día 6, dormir en un hotel y descansar bien. El 7 subir a Góriz, el 8 ruta hasta la brecha de Rolando (o cerca), el 9 ruta hasta Monteperdido (al menos hasta el Ibon helado), y el 10 bajar otra vez a la pradera y de ahí ya conducir hasta casa (4 horas). La ventaja de ir solo es que pude improvisar un poco, pero tenía un buen plan.
+Debido a las fechas sabía que aún habría nieve en la escupidera, el tramo final y más complicado, con una gran inclinación y uno de los puntos donde más gente fallece en los pirineos. Así que ya me iba haciendo a la idea que no subiría arriba del todo, pero tenía más cosas previstas y no iba a correr riesgos innecesarios. La idea inicial era viajar a Torla el día 6, dormir en un hotel y descansar bien. El 7 subir a Góriz, el 8 ruta hasta la brecha de Rolando (o cerca), el 9 ruta hasta Monte Perdido (al menos hasta el Ibon helado), y el 10 bajar otra vez a la pradera y de ahí ya conducir hasta casa (4 horas). La ventaja de ir solo es que pude improvisar un poco, pero tenía un buen plan.
 
 El refugio de Góriz casi parece un hotel, hay desayuno, cena caliente, duchas, y personal muy amable que ayuda con las rutas y el tiempo, así que era un buen campamento base para mi pequeña aventura. Ya sólo faltaba preparar la mochila! Como quería estar seguro de no perderme, en la mochila incluí dos teléfonos móviles con las rutas en Wikiloc por duplicado, con los mapas descargados para consulta offline, una batería externa de 20000mAh (0.5Kg!), otra peque de unos 3000mAh, cables por duplicado, y lo indispensable para una travesía en solitario: ropa de abrigo, cortavientos, puffs, botiquín, comida, barritas, protección solar, gafas de sol, bolsas para la basura, frontal, saco, unas buenas botas de montaña, botella de agua, etc. En el refugio además ofrecen picnic para llevarte en tu travesía, así que si me quedaba sin comida podría sobrevivir bien.
 Al final llevé una mochila de unos 8Kg, sólo un pelín más de lo que había estado entrenando, bien! \o/
@@ -36,7 +36,7 @@ Trás reponer un poco de fuerzas reanudo la marcha y conozco un muchacho de Colo
 ![Image](fotos/dia1/clavijas1.jpg)
 _Vistas tras subir por las clavijas de Soaso_
 
-A partir de ahí las vistas mejoran por momentos, por delante el gran Monteperdido, por detrás el valle entero. El tramo final es hora y media de trayecto aproximadamente, enseguida se suben metros y entre el calor y la mochila tengo que hacer un par de paradas más, pero aprendí de Mauricio a caminar un poco más lento y parar 2-3 minutos para recuperar aliento cuando me hiciera falta. Fruta y una barrita también ayudan! Al final llego al refugio sobre las 12h30, 4h de trayecto. Llego un poco cansado pero mucho mejor de lo que esperaba. Sabiéndolo seguramente me habría desviado en la pradera para ver las cascadas de Cotatuero, calculo que habría sido 1h30 de desvío, pero no quería arriesgar a llegar demasiado cansado arriba el primer día.
+A partir de ahí las vistas mejoran por momentos, por delante el gran Monte Perdido, por detrás el valle entero. El tramo final es hora y media de trayecto aproximadamente, enseguida se suben metros y entre el calor y la mochila tengo que hacer un par de paradas más, pero aprendí de Mauricio a caminar un poco más lento y parar 2-3 minutos para recuperar aliento cuando me hiciera falta. Fruta y una barrita también ayudan! Al final llego al refugio sobre las 12h30, 4h de trayecto. Llego un poco cansado pero mucho mejor de lo que esperaba. Sabiéndolo seguramente me habría desviado en la pradera para ver las cascadas de Cotatuero, calculo que habría sido 1h30 de desvío, pero no quería arriesgar a llegar demasiado cansado arriba el primer día.
 
 ![Image](fotos/dia1/refugio1.jpg)
 _Al fin el refugio!_
@@ -94,7 +94,7 @@ El trayecto de vuelta es muy tranquilo, aprovecho a hacer pequeños desvíos y b
 ![Image](fotos/dia2/valle1.jpg)
 _Vistas durante la comida, ahí en el rincón se puede ver el refugio a la distancia_
 
-Estuvo chispeando casi toda la tarde, así que aprovecho a descansar un poco, leer, e investigar el camino para subir a Monteperdido el día siguiente, mientras hago varias rutas cortas. En total habré caminado unos 23km, 32000 pasos, menos desnivel que el día anterior y sin mochila, así que sigo muy fresco para el día fuerte. Durante la cena hablo con una pareja con la que había coincidido en el hotel de Torla, y me cuentan que también están haciendo rutas por Ordesa. Una de ellas fué una travesía desde Bujaruelo al Pic de la Pahule, desde donde hay unas vistas increíbles al circo (y la cascada) de Gavarnier, ruta de unas 6h en total. Por lo que ví allí los dos dias que estuve, el plan suele ser subir a Góriz, dormir, subir a Monteperdido y bajar a la pradera el mismo día, y empecé a darle vueltas a hacer lo mismo y encajar Gavernier en mi último día...
+Estuvo chispeando casi toda la tarde, así que aprovecho a descansar un poco, leer, e investigar el camino para subir a Monte Perdido el día siguiente, mientras hago varias rutas cortas. En total habré caminado unos 23km, 32000 pasos, menos desnivel que el día anterior y sin mochila, así que sigo muy fresco para el día fuerte. Durante la cena hablo con una pareja con la que había coincidido en el hotel de Torla, y me cuentan que también están haciendo rutas por Ordesa. Una de ellas fué una travesía desde Bujaruelo al Pic de la Pahule, desde donde hay unas vistas increíbles al circo (y la cascada) de Gavarnier, ruta de unas 6h en total. Por lo que ví allí los dos dias que estuve, el plan suele ser subir a Góriz, dormir, subir a Monte Perdido y bajar a la pradera el mismo día, y empecé a darle vueltas a hacer lo mismo y encajar Gavernier en mi último día...
 
 # Día 3
 
@@ -103,7 +103,7 @@ Otro día de madrugar con muchas ganas de subir, no se ve ninguna nube así que 
 ![Image](fotos/dia3/refugio1.jpg)
 _Si no había nubes es porque se las estaba llevando el fuerte viento_
 
-La subida a Monteperdido es de alta montaña, mucha parte de usar las manos, trepadas, caminos de piedra, y caminos sin marcar, aunque de fácil seguimiento con los hitos. Hay varios grupos subiendo, lo que también ayuda a tomar según que decisiones. El trayecto es de subida constante, y bastante seguro, aunque hay momentos en los que el viento aprieta fuerte y hay que ir con más cuidado.
+La subida a Monte Perdido es de alta montaña, mucha parte de usar las manos, trepadas, caminos de piedra, y caminos sin marcar, aunque de fácil seguimiento con los hitos. Hay varios grupos subiendo, lo que también ayuda a tomar según que decisiones. El trayecto es de subida constante, y bastante seguro, aunque hay momentos en los que el viento aprieta fuerte y hay que ir con más cuidado.
 
 ![Image](fotos/dia3/monteperdido1.jpg)
 ![Image](fotos/dia3/monteperdido2.jpg)
@@ -142,7 +142,7 @@ _Cola de Caballo desde las zetas, esos puntitos son gente!_
 ![Image](fotos/dia3/bajada4.jpg)
 _La ruta hasta la pradera tiene 2 caminos, estas son las vistas del camino que va más pegado a la montaña, pero me gusta mucho más el principal_
 
-En este punto estoy realmente agotado, llevo ya más de 33km acumulados, con unos 1200 metros de desnivel positivo (Monteperdido + El Fraile) y casi 2000 de bajada, voy parando cada media hora aproximadamente, y el calor no ayuda. Es más cansancio que dolor por lo que puedo seguir bien, aunque mucho mas lento de lo habitual. En uno de los carteles pone que hay unas 2h de trayecto hasta la pradera, y yo creo que estoy tardando casi 3h... pero al fin llego!
+En este punto estoy realmente agotado, llevo ya más de 33km acumulados, con unos 1200 metros de desnivel positivo (Monte Perdido + El Fraile) y casi 2000 de bajada, voy parando cada media hora aproximadamente, y el calor no ayuda. Es más cansancio que dolor por lo que puedo seguir bien, aunque mucho mas lento de lo habitual. En uno de los carteles pone que hay unas 2h de trayecto hasta la pradera, y yo creo que estoy tardando casi 3h... pero al fin llego!
 Una vez en el coche reservo un hotel rápidamente, justo al lado del que había tenido el primer día en Torla, y ya más relajado me cambio, descanso y me voy allí a darme una buena ducha y tumbarme en la cama.
 La cosa es que llego tan cansado que descarto la ruta a Gavarnier el día siguiente, pero buscando alternativas encuentro una ruta más dominguera para el últim día, no sé como me levantaré pero si me encuentro con fuerza, son sólo unas 3~4 horas.
 Eso sí, primero una buena cena y luego a caer rendido.
@@ -163,7 +163,7 @@ A medio camino creo que el desayuno hace efecto y recupero energía, hasta que p
 _Será por cascadas!_
 ![Image](fotos/dia4/otal4.jpg)
 
-Al final del valle aprovecho a rellenar el agua bajo una cascada, el calor aprieta mucho más que en Monteperdido y me pongo en pantalón corto, la primera vez en toda la semana. Y crema solar, que no falte nunca!
+Al final del valle aprovecho a rellenar el agua bajo una cascada, el calor aprieta mucho más que en Monte Perdido y me pongo en pantalón corto, la primera vez en toda la semana. Y crema solar, que no falte nunca!
 Aunque ha sido un camino bastante fácil y de sólo unas 2h, noto mucho el cansancio del día anterior, y sé que no aguantaré una travesía de mas de 4 horas, así que voy planeando la vuelta al principio del valle para parar a comer y descansar un rato antes de bajar. Se ve que es una excursión muy común, y a esta ahora hay muchos grupos que han o estan llegando para comer ahí.
 
 ![Image](fotos/dia4/otal5.jpg)
@@ -173,7 +173,7 @@ Llego abajo tras casi 4h de travesía, un poco agotado pero sin molestias aparen
 
 # Conclusiones!
 
-Lo primero que aprecié fué que durante los 4 días sólo estuve centrado en la montaña y las rutas, sin distracciones, ni emails, ni trabajo, ni redes sociales ni series ni nada. De hecho cuando tuve cobertura en Monteperdido me llegaron un montón de notifaciones, pero no las leí hasta el día del hotel, y me dí cuenta la cantidad de tiempo que dedicamos a la vida online, y la cantidad de información que se acumuló en sólo 4 días (la mayoría no urgente). Da para pensar un poco...
+Lo primero que aprecié fué que durante los 4 días sólo estuve centrado en la montaña y las rutas, sin distracciones, ni emails, ni trabajo, ni redes sociales ni series ni nada. De hecho cuando tuve cobertura en Monte Perdido me llegaron un montón de notifaciones, pero no las leí hasta el día del hotel, y me dí cuenta la cantidad de tiempo que dedicamos a la vida online, y la cantidad de información que se acumuló en sólo 4 días (la mayoría no urgente). Da para pensar un poco...
 Sobre las rutas, a toro pasado creo que fuí demasiado precavido, y podría haber gestionado un poco mejor las travesías, pero no pensaba que el entrenamiento me había ayudado a llegar en tan buena forma (relativamente hablando), y siendo la primera vez que iba a alta montaña, casi mejor quedarse corto que pasarse de cansancio.
 Tercero, ir en esta época significa ver bastante verde e incluso nieve, y los paisajes son más bonitos que no en el ávido verano. Aunque luego se necesita material extra (crampones y piolet) para ciertas rutas, habiendo visto el tipo de rutas creo que es asequible, pues se usa solamente en sitios puntuales.
 
